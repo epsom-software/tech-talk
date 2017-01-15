@@ -1,0 +1,1 @@
+#Tech Talk JavaScript[Q&A](https://1drv.ms/p/s!Ai71Vi2Ew1DbhmceryW8wmXkPH6Z)
